@@ -1,2 +1,2 @@
 # Adpkme
-Katlet corek
+azərbaycan dövlət pedaqoji kollecinin rəsmi saytı(şüpheli)
